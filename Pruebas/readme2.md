@@ -1,1 +1,0 @@
-Segundo readme sin aceptar
